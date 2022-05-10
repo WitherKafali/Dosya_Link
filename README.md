@@ -1,1 +1,1 @@
-# Dosya_Link
+http://bc.vc/7LPNrvO
